@@ -4,3 +4,5 @@ and to show my work to people if they ask for it
 
 im currently studying aerospace engineering (aeronautics)
 but im planning on adding a comp sci major (and maybe mathematics)
+
+the lowercase is intentional
