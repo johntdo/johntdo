@@ -1,9 +1,1 @@
-hi, dont take my repos too seriously
-honestly im just using this to share code ive made
-and to show my work to people if they ask for it
-
-main account got hacked i dont got nothing on this one :(
-
-the lowercase is a stylistic choice (im lazy)
-
 i used to be very motivated im not really sure what happened
